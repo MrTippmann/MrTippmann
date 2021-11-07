@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrTippmann
+- 👋 Hi, I’m @MrTippmann ( Christpher Kilgour )
 - 👀 I’m interested in coding, technology, computer hardware, gaming, and sports.
 - 🌱 I’m currently learning how to become software developer.
 - 📫 How to reach me - email: christopherkilgour.ck@gmail.com
